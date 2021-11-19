@@ -1,3 +1,2 @@
-# worldofshishas
 World Cup of Shishas 
-Esto es el mundial de las cachimas picha
+BIENVENIDO AL MUNDIAL DE LAS CACHIMBAS
